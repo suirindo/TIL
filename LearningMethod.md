@@ -4,6 +4,7 @@
   ⇒
 　- 「全部」を「無理」に「その時」理解してしまおうとすることをやめる。
 　- 後回しにはするが、「他の場所で鍛えてレベルアップしてから戻ってくる」こととすれば多少気分よくいられる。
+　- 今はわからなくとも、「何度も読んだり書いたりしているうちに、直感的に納得できるときがくる」と信じて続けること。
 
 ### 賢ぶらない
 
@@ -15,4 +16,4 @@
   - 1920's music
   - cowboy bebop
   - classic
-
+  - 007- {NoTimeToDie}(https://www.youtube.com/watch?v=v84qJGtF7VU&list=PLDisKgcnAC4T7VHoc9Hg0lC5rfGPpz9E1)
