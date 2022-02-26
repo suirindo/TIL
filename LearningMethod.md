@@ -15,17 +15,20 @@
 ## モチベーション継続 
 - 開発⇔競技プログラミングの行き来で適度に息抜きを行う
 
+## 自分のドメイン知識を活かしたサービス制作を
+- 警察官（公務員）
+- 喫茶店（飲食業）
+- 会社員（IT人事）
+
 ## BGM
 - clubMusic mix
 - 1920's music
 - cowboy bebop
 - classic
 - 007- [NoTimeToDie](https://www.youtube.com/watch?v=v84qJGtF7VU&list=PLDisKgcnAC4T7VHoc9Hg0lC5rfGPpz9E1)
+- [攻殻機動隊 standAloneComplex](https://www.youtube.com/watch?v=MESmmmrgEUQ)
 
-## 自分のドメイン知識を活かしたサービス制作を
-- 警察官（公務員）
-- 喫茶店（飲食業）
-- 会社員（IT人事）
+
  
 
 
