@@ -27,8 +27,9 @@
 - 1920's music
 - cowboy bebop
 - classic
-- 007- [NoTimeToDie](https://www.youtube.com/watch?v=v84qJGtF7VU&list=PLDisKgcnAC4T7VHoc9Hg0lC5rfGPpz9E1)
+- [007-NoTimeToDie](https://www.youtube.com/watch?v=v84qJGtF7VU&list=PLDisKgcnAC4T7VHoc9Hg0lC5rfGPpz9E1)
 - [攻殻機動隊 standAloneComplex](https://www.youtube.com/watch?v=MESmmmrgEUQ)
+- [La La Land Soundtrack](https://www.youtube.com/watch?v=Yaufxd6zEZI)
 
 
  
